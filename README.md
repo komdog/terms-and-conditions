@@ -1,2 +1,3 @@
-# terms-and-conditions
-Commission terms and conditions.
+# Komdog Commission Terms of Service
+
+
