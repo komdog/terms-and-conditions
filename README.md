@@ -6,9 +6,9 @@ These T.O.S. (Terms Of Service) apply to all commissioned artwork in 2020.
 
 ###  Contact Information:
 
-[Email](http://komdogart@gmail.com/)
-[Twitter](https://twitter.com/KomDogArt)
-[FurAffinity](http://www.furaffinity.net/user/komdog)
+[Email](http://komdogart@gmail.com/) - 
+[Twitter](https://twitter.com/KomDogArt) - 
+[FurAffinity](http://www.furaffinity.net/user/komdog) - 
 [Patreon](https://www.patreon.com/komdog)
 
 ## General
